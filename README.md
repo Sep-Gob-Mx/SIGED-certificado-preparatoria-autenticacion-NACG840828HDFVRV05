@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-NACG840828HDFVRV05
+NACG840828HDFVRV05
